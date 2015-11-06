@@ -1,7 +1,8 @@
 # Synesthesia
 
 ![Synesthesia](img/synesthasia.jpg)
-
+![Fantasia](http://www.londontheatrebookings.com/user_content/images/shows/490-fantasia_/poster.jpg)
+![Lygia Clark](http://www.ilpost.it/wp-content/uploads/2014/05/Lygia-Clark_16.jpg)
 [![gallery](https://c1.staticflickr.com/7/6096/6236745783_af6659a77f_n.jpg)](https://www.flickr.com/photos/happyfamousartists/6236745783/)
 [![lab](https://c1.staticflickr.com/1/55/149332018_6a599b8b2a_m.jpg)](https://www.flickr.com/photos/jurvetson/149332018/)
 [![amusement park](https://c1.staticflickr.com/3/2541/3777962464_4c0a190fd7_m.jpg)](https://www.flickr.com/photos/arpik/3777962464/)
@@ -17,6 +18,8 @@ This event would be equal parts exhibition, lab visit, amusement park, and spa. 
 Connecting with Lygia Clark's practice of therapeutic experiential art. Artists are encourage to explore "neglected" senses such as touch, smell, taste, kinesthetic awareness, and attempts at a "6th sense" (brain waves or chakras, for instance). More commonly explored such as vision and hearing are also accepted, although there will be a higher bar for sophistication.
 
 There is a sliding scale entrance fee ($5-20?), which is transferred into credits granted to each participant. Artists have the option to choose whether or not to charge credits for their experience, and how many. All artists are required to offer a period of time in which their station is offered free of charge. Each artist/group of artists is required to sign up for and work one documentation shift. 
+
+Artists are encouraged to collaborate, perhaps each artist could provide one input and one output for a process.
 
 ## Work
 
