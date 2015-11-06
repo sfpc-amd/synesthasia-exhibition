@@ -1,8 +1,8 @@
 # Synesthesia
 
 ![Synesthesia](img/synesthasia.jpg)
-![Fantasia](http://www.londontheatrebookings.com/user_content/images/shows/490-fantasia_/poster.jpg)
 ![Lygia Clark](http://www.ilpost.it/wp-content/uploads/2014/05/Lygia-Clark_16.jpg)
+![Fantasia](http://www.londontheatrebookings.com/user_content/images/shows/490-fantasia_/poster.jpg)
 [![gallery](https://c1.staticflickr.com/7/6096/6236745783_af6659a77f_n.jpg)](https://www.flickr.com/photos/happyfamousartists/6236745783/)
 [![lab](https://c1.staticflickr.com/1/55/149332018_6a599b8b2a_m.jpg)](https://www.flickr.com/photos/jurvetson/149332018/)
 [![amusement park](https://c1.staticflickr.com/3/2541/3777962464_4c0a190fd7_m.jpg)](https://www.flickr.com/photos/arpik/3777962464/)
