@@ -8,7 +8,7 @@
 [![amusement park](https://c1.staticflickr.com/3/2541/3777962464_4c0a190fd7_m.jpg)](https://www.flickr.com/photos/arpik/3777962464/)
 [![spa](https://c1.staticflickr.com/9/8406/8633256793_fb6b1e8dc4_n.jpg)](https://www.flickr.com/photos/merlin-phuket/8633256793/)
 
-
+http://projectnativeinformant.com/?news=dis-the-island-ken-the-new-museum-triennial-2015-surround-audience
 
 [Curation assigment for Taeyoon Choi's Concepts & Theory class](https://github.com/tchoi8/ConceptsClass/blob/master/Exhibition.md
 )
